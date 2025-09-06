@@ -8,18 +8,19 @@ You can watch the video course [here](https://youtu.be/31DEiu6eQRM) and the Live
 
 ### Our Social Media
 
->  [YouTube](https://www.youtube.com/@CodingAqyanoos)
+>  [YouTube](https://www.youtube.com/@Aqyanoos)
 
->  [Facebook](https://www.facebook.com/CodingAqyanoos)
+>  [Facebook](https://www.facebook.com/Aqyanoos)
 
 >  [LinkedIn](https://www.linkedin.com/company/aqyanoos/)
 
->  [X](https://twitter.com/CodingAqyanoos)
+>  [X](https://twitter.com/Aqyanoos)
 
 >  [Website](https://aqyanoos.com)
 
 
 #### Have fun and enjoy learning
+
 
 
 
